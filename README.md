@@ -1,4 +1,3 @@
-# 💫 About Me:
 ### Hi, I'm Huy👋<br><br>A young-dumb🤓-passionate AI learner.
 
 ## 🌐 Socials:
